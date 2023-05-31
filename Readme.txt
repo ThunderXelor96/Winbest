@@ -1,1 +1,1 @@
-![ALT text](Capture d’écran (269))
+![ALT text]Capture d’écran (269)
